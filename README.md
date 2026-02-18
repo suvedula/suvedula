@@ -80,8 +80,8 @@
 
 ## 📫 Connect With Me
 
-- 🔗 LinkedIn: https://www.linkedin.com/in/YOUR_LINKEDIN  
-- 📧 Email: your@email.com
+- 🔗 LinkedIn: https://www.linkedin.com/in/sudhirvedula  
+- 📧 Email: sudhir.vedula@gmail.com
 
 ---
 
